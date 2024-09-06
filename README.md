@@ -9,3 +9,5 @@ Meu nomo é Raphael Stanchi
 ### Você entrar em contato comigo 📫
 
 00001087306528sp@al.educacao.sp.gov.br
+
+https://media.tenor.com/Db9euJyQnbUAAAAi/chat-pouce.gif
